@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @dipordex
-- 📫 How to reach me ...
+
   
 - ⚡ Key Skills:
   
